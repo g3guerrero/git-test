@@ -1,1 +1,1 @@
-This is Giovanni's second git test project!
+Practice makes perfect. Constistency is what promotes the healthiest progress. Don.t you fucking slack on me  now. 
